@@ -3,4 +3,10 @@ https://r.studyschooltoday.eu.org/ https://classroom.weeb-central.us/ https://di
 
 
 https://agar.io/#MT7E85
+
+
 https://pastebin.com/Ar0Tk2nzHope 
+
+
+get script here no ads https://shrinke.me/raycodexaimviewer
+join discord for  script https://discord.gg/xsxHfQkc8e
